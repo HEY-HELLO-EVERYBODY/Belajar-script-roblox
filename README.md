@@ -1,0 +1,2 @@
+# Belajar-script-roblox
+Belajar
